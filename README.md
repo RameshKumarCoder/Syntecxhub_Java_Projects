@@ -1,1 +1,0 @@
-# Syntecxhub_Java_Projects
